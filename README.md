@@ -1,2 +1,2 @@
 # like
-存储任何有意思的文章和所见所闻
+something interesting and funny
